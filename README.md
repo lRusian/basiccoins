@@ -3,11 +3,15 @@ Basic Coins System with Source Codes open
 
 
 SOURCE CODES OPENED FOR PLAYER
+
 CONTACT WITH DISCORD: lRussian#8326
+
 CONTACT WITH TWITTER: https://twitter.com/llRusian
 
 Are you looking for a developer for your network?
+
 Contact me through discord and I will give you the information of these levels of experience.
+
 Programo server's por distintos precios
 
 Lvl 1 = 3$ MD for info
