@@ -1,6 +1,6 @@
 # basiccoins
 Basic Coins System with Source Codes open
-
+https://discord.gg/MbTajyDUkU
 
 SOURCE CODES OPENED FOR PLAYER
 
